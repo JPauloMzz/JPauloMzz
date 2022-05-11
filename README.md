@@ -1,0 +1,4 @@
+- 👋 Bão piá. Eu sô o JPaulo
+- 🌱 Tô tentando (com pouca vontade) criar uma pagina web
+- 💞️ Se me dé vontade, vô colaborá
+- 📫 Pá vim até eu, venha pela estrada
